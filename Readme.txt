@@ -1,1 +1,3 @@
-Thanks for coming!
+
+Thanks for visting
+
